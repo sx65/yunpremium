@@ -1,0 +1,2 @@
+# yunpremium
+discord.gg/yun
